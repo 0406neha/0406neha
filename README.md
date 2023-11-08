@@ -2,4 +2,4 @@
 - 👀 I’m interested in Programming
 - 🌱 I’m currently learning languages
 - 📫 How to reach me &darr;
-- &#128231; &#x1F4E7; nrani51916@gmail.com
+- &#128231; nrani51916@gmail.com
